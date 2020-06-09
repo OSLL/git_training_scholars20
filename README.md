@@ -2,4 +2,5 @@
 
 - First change
 - Second change
-- Third change
+- za anime i dvor streliau v upor
+- anime na ave - zdorovia mame
